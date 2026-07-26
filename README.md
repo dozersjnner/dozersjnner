@@ -6,7 +6,7 @@
   
 $${\color{red}spam\ following\ account\ -\ block\ if\ unwanted\ ! }$$
 
-$${\color{red}we\ follow\ people\ whose\ ponies\ we\ find\ cool\ !}$$
+$${\color{red}we\ follow\ people\ whose\ ponies\ we\ find\ cool\ (\ or\ those\ who\ follow\ our\ main\ account\ )}$$
 
 <div align="center">
 
