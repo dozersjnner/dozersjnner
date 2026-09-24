@@ -5,4 +5,4 @@
 
   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=shiwanjini&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ddd192&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
- [read](https://ix1dx1.straw.page/) . [main](https://github.com/sHarkieeii)
+ [read](https://ix1dx1.straw.page/) . [follow main](https://github.com/sHarkieeii)
